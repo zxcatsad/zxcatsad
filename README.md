@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zxcatsad
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning web
+- 📫 How to reach me discord: zxcatsad
